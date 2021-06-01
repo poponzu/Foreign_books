@@ -25,4 +25,6 @@
 ### 5/29 ###  
 「The mystery of Allegra」  
 ホラー？　Allegraが2人いるけど、ゴーストじゃないほうのAllegraが死んだ？  
-
+### 6/1 ###  
+「The mystery of Allegra」  読み終えた。
+過去のアレグラが思念体で残ってた。最後に母（墓）で出会う。  
