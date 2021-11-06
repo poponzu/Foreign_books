@@ -1,9 +1,9 @@
 ### 5/14~5/16 ###   
-「Five Children and It (Oxford Bookworms: Stage 2)」　5人の子供たちが砂利の場所で1日に期間1日の願い事を叶えてくれるやつ  
+「Five Children and It (Oxford Bookworms: Stage 2)」　(5,945word)5人の子供たちが砂利の場所で1日に期間1日の願い事を叶えてくれるやつ  
 ### 5/17 ###
 4冊借りてきた  
 ### 5/18 ###
-「New Yorkers」　短編集  
+「New Yorkers」(5,895words)　短編集  
 1. 貧しいカップルの話。髪の毛を売りに行った  
 2. 監獄に入りたい男の話。悪い心の時は、捕まらずに、改心した途端ムショ行き  
 1~16ページ読んだ。  
@@ -18,12 +18,12 @@
 ### 5/21 ###  
 二つ目は貧しい家の人が友達を家に誘ってお茶会をする話・
 三つ目は隣の4人の学生を監視する話。
-この「Too old to rock and roll」は全体的に読みにくく、わかりにくかった。
+この「Too old to rock and roll」(5,310words)は全体的に読みにくく、わかりにくかった。
 ### 5/24~5/27 ###  
-「Grace Darling」　岩に遭難したpassengerを灯台にいる娘Graｃeと父が小さなボートで救助する話。
+「Grace Darling」(6,685words)　岩に遭難したpassengerを灯台にいる娘Graｃeと父が小さなボートで救助する話。
 前の本と比べて読みやすかった。
 ### 5/29 ###  
-「The mystery of Allegra」  
+「The mystery of Allegra」 (6,115 words) 
 ホラー？　Allegraが2人いるけど、ゴーストじゃないほうのAllegraが死んだ？  
 ### 6/1 ###  
 「The mystery of Allegra」  読み終えた。
