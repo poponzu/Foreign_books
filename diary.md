@@ -32,3 +32,5 @@
 「Seasons and Celebrations」　4章までよんだ。
 ### 11/3 ###
 7章までよんだ
+### 11/6 ###
+「Seasons and celebrations」読み切った(6508words)
