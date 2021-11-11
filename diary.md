@@ -36,3 +36,5 @@
 「Seasons and celebrations」読み切った(6508words)
 ### 11/7 ###
 「Return to earth」の3章まで読んだ
+## 11_11 ###
+「Moby Dick」の4章まで読了
