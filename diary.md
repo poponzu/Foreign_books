@@ -38,3 +38,5 @@
 「Return to earth」の3章まで読んだ
 ## 11_11 ###
 「Moby Dick」の4章まで読了
+## 11_17 ###
+「Moby Dick」全て読了(9362 words)
