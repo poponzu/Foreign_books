@@ -40,3 +40,5 @@
 「Moby Dick」の4章まで読了
 ## 11_17 ###
 「Moby Dick」全て読了(9362 words)
+## 11_19 ###
+「Extream Sports」全て読了(4128 words)
