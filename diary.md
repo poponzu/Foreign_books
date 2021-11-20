@@ -42,3 +42,5 @@
 「Moby Dick」全て読了(9362 words)
 ## 11_19 ###
 「Extream Sports」全て読了(4128 words)
+## 11_20 ###
+「Gandhi」4章まで読了
