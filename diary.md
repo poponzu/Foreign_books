@@ -44,3 +44,7 @@
 「Extream Sports」全て読了(4128 words)
 ## 11_20 ###
 「Gandhi」4章まで読了
+## 11_21 ###
+「Gandhi」全て読了
+## 11_22 ###
+「The Birds」20ページまで読了
